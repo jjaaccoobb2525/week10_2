@@ -4,8 +4,8 @@
 
 제 아이디는 
 
-jjaaccoobb25
-
+1. jjaaccoobb25
+2. Jinmiru
 
 
 
