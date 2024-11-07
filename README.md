@@ -5,8 +5,9 @@
 제 아이디는 
 
 
-- GrayOM
-
+1. jjaaccoobb25
+2. Jinmiru
+3. GrayOM
 
 
 
